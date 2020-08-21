@@ -13,6 +13,6 @@
 ## [2018年VIP作品合集](/2018年VIP作品合集/README.md)
 ## [2019年VIP作品合集](/2019年VIP作品合集/README.md)
 ## [2020年VIP作品合集](/2020年VIP作品合集/README.md)
-# 电报交流群：https://t.me/sxcool1024g
+# 提取码：2048，解压码：1024
 [回到顶部](#readme)
 
